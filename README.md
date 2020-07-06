@@ -141,7 +141,16 @@ crying face
 (⩾﹏⩽)
 straining face
 
+ԅ(≖‿≖ԅ)
+tickly face
+
 {ಠʖಠ}
 judgemental face
+
+◔_◔
+careless face
+
+♥‿♥
+lovey face
 
 ```
