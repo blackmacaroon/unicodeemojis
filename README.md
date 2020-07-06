@@ -71,4 +71,15 @@ pourquoi?! face
 
 ᕕ( ᐛ )ᕗ
 blissfully ignorant face
+
+t(ò_ót)
+fuck you face
+
+(づ｡◕‿‿◕｡)づ
+hug face
+
+(ノಠ ∩ಠ)ノ彡( \o°o)\
+flip friend
+
+
 ```
