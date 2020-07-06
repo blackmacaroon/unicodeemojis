@@ -114,6 +114,9 @@ seal face
 (Ծ ‸ Ծ)
 dislike face
 
+( ಠ ʖ̯ ಠ)
+dislike face 2
+
 (•̀ᴗ•́)و ̑̑
 sore winner face
 
@@ -122,5 +125,10 @@ zombie face
 
 ♨_♨
 seared into my eyes face
+
+( ͡ಠ ʖ̯ ͡ಠ)
+corporate eyebrow facee
+
+
 
 ```
