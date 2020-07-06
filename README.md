@@ -147,6 +147,21 @@ tickly face
 {ಠʖಠ}
 judgemental face
 
+( ˘ ³˘)♥ 
+kissing face
+
+<(ˇ෴ˇ)>
+shark face
+
+ヾ(-_- )ゞ
+emo dancing face
+
+♪♪ ヽ(ˇ∀ˇ )ゞ
+dancing face
+
+ヾ(´〇`)ﾉ♪♪♪
+singing face
+
 ◔_◔
 careless face
 
