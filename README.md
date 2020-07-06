@@ -81,5 +81,19 @@ hug face
 (ノಠ ∩ಠ)ノ彡( \o°o)\
 flip friend
 
+┌(ㆆ㉨ㆆ)ʃ
+dancing 
+
+눈_눈
+sleepy
+
+ʕ •́؈•̀)
+winnie the pooh
+
+ლ(•́•́ლ)
+boxing
+
+(ง'̀-'́)ง
+fight
 
 ```
