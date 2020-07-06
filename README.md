@@ -15,7 +15,16 @@ shrug face
 (╯°□°）╯︵ ┻━┻
 table flip / flipping table 
 
-┬─┬﻿ ノ( ゜-゜ノ)
+┬─┬ ノ( ゜-゜ノ)
 put the table back
+
+ლ(｀ー´ლ)
+fisticuffs
+
+(｡◕‿◕｡)
+cute face with big eyes 
+
+（　ﾟДﾟ）
+surprised / loudmouthed 
 
 ```
