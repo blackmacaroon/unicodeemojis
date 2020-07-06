@@ -19,10 +19,10 @@ table flip
 put the table back
 
 ლ(｀ー´ლ)
-fisticuffs
+fisticuffs face
 
 (｡◕‿◕｡)
-big eyes 
+big eyes face
 
 （　ﾟДﾟ）
 loudmouthed 
@@ -43,23 +43,32 @@ joy face
 boast face 
 
 ฅ^•ﻌ•^ฅ
-meow
+meow face
 
 （ ^_^）o自自o（^_^ ）
-cheers  
+cheers faces 
 
 ಠ‿ಠ
 devious smile
 
 ಥ﹏ಥ
-overwhelmed tears
+overwhelmed tears face
 
 ٩◔̯◔۶
-disagree
+disagree without confidence face
 
 ᕙ(⇀‸↼‶)ᕗ
 flex face 
 
 ᕦ(ò_óˇ)ᕤ
 douche flex face
+
+(´･_･`)
+worried face
+
+щ（ﾟДﾟщ）
+pourquoi?! face 
+
+ᕕ( ᐛ )ᕗ
+blissfully ignorant face
 ```
