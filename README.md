@@ -9,6 +9,9 @@ disapproval face
 ʕᵔᴥᵔʔ
 happy bear
 
+⥀.⥀
+eye roll face
+
 ¯\_(ツ)_/¯
 shrug
 
