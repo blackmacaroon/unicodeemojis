@@ -75,6 +75,12 @@ pourquoi?! face
 ᕕ( ᐛ )ᕗ
 blissfully ignorant face
 
+(∩｀-´)⊃━☆ﾟ.*･｡ﾟ
+wizard
+
+(っ˘ڡ˘ς)
+yum
+
 t(ò_ót)
 fuck you face
 
