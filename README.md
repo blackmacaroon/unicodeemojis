@@ -39,6 +39,9 @@ angry negotiating face
 ☜(⌒▽⌒)☞
 excited face
 
+\(ᵔᵕᵔ)/
+happy hug facee
+
 ヽ(´▽`)/
 joy face  
 
@@ -127,7 +130,16 @@ zombie face
 seared into my eyes face
 
 ( ͡ಠ ʖ̯ ͡ಠ)
-corporate eyebrow facee
+corporate eyebrow face
+
+(◠﹏◠)
+satisfied face
+
+(ᵟຶ︵ ᵟຶ)
+crying face
+
+(⩾﹏⩽)
+straining face
 
 
 
