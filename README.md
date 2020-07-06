@@ -96,4 +96,19 @@ boxing
 (ง'̀-'́)ง
 fight
 
+{•̃_•̃}
+robot face
+
+(ᵔᴥᵔ)
+seal face
+
+(Ծ ‸ Ծ)
+dislike face
+
+(•̀ᴗ•́)و ̑̑
+sore winner face
+
+[¬º-°]¬
+zombie face
+
 ```
