@@ -120,4 +120,7 @@ sore winner face
 [¬º-°]¬
 zombie face
 
+♨_♨
+seared into my eyes face
+
 ```
