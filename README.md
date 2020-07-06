@@ -4,16 +4,16 @@
 innocent face 
 
 ಠ_ಠ
-reddit disapproval face
+disapproval face
 
 ʕᵔᴥᵔʔ
-squinting bear
+happy bear
 
 ¯\_(ツ)_/¯
-shrug face 
+shrug
 
 (╯°□°）╯︵ ┻━┻
-table flip / flipping table 
+table flip 
 
 ┬─┬ ノ( ゜-゜ノ)
 put the table back
@@ -22,9 +22,44 @@ put the table back
 fisticuffs
 
 (｡◕‿◕｡)
-cute face with big eyes 
+big eyes 
 
 （　ﾟДﾟ）
-surprised / loudmouthed 
+loudmouthed 
 
+(╬ ಠ益ಠ)
+angry face
+
+ლ(ಠ益ಠლ)
+angry negotiating face
+
+☜(⌒▽⌒)☞
+excited face
+
+ヽ(´▽`)/
+joy face  
+
+ヽ(´ー｀)ノ
+boast face 
+
+ฅ^•ﻌ•^ฅ
+meow
+
+（ ^_^）o自自o（^_^ ）
+cheers  
+
+ಠ‿ಠ
+devious smile
+
+ಥ﹏ಥ
+overwhelmed tears
+
+٩◔̯◔۶
+disagree
+
+ᕙ(⇀‸↼‶)ᕗ
+flex face 
+
+ᕦ(ò_óˇ)ᕤ
+douche flex face
 ```
