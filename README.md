@@ -141,6 +141,7 @@ crying face
 (⩾﹏⩽)
 straining face
 
-
+{ಠʖಠ}
+judgemental face
 
 ```
